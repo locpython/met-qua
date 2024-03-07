@@ -1,2 +1,0 @@
-# met-qua
-mệt rồi
